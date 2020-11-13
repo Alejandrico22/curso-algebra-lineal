@@ -1,1 +1,1 @@
-# ejemplo subida xd hola me llamo Alejandro tengo 19 años
+# ejemplo subida xd hola me llamo Alejandro tengo 19 años soy español
